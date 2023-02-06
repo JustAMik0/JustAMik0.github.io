@@ -1,3 +1,3 @@
 ## CS321 Assignment 4.4 Submission
 I'm not sure what to put here...
-![Hmmm](https://tenor.com/view/peach-cat-and-goma-cat-thinking-planning-cat-gif-15910893)
+![Sven](https://user-images.githubusercontent.com/123230912/216856957-687cf63b-c247-4af3-9274-a252b52b8184.jpg)
